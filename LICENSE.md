@@ -1,4 +1,4 @@
-# 
+# Top Sejda PDF ferramentas para Mac OS | Gratuito Sejda PDF ferramentas para PC Windows. Com estimativa de reembolso e contabilidade de projetos — otimizado para máximo desempenho em cada plataforma.
 
 
 
